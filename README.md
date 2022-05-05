@@ -1,6 +1,6 @@
 👋 Hey mate, I'm Noro or @TrueCodes
 
-🎊 MY PORTFOLIO COMING OUT SOON, HOPE YOU TUNED 🎊
+🎊 MY PORTFOLIO IS OUT NOW, [GO CHECK IT OUT](https://www.truecodes.dev)  🎊
 
 💻 currently filling my GitHub, keepin' it super-fresh!
 
